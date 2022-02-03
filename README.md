@@ -1,0 +1,2 @@
+# Ashish-Patu-Pal-
+Ashish Raja is an Indian actor, singer and model associated with Bhojpuri cinema. He hails from Ghazipur, Uttar Pradesh. He gave a speech on the Indian Constitution.    Born: 19 July 2003 (age 18 years), (Surat),  Height: 1.753 square meters  Album - (1)Chalal Jai Saiya aso Baijodham (2) Sala Bhatar Havildar Ho Gayil  Speech- (1) Ghazipur ke Saan A Work: Bhojpuri Singer &amp; Actor, Social worker Education: 1335 A N I C Jainpur Bhimapar Ghazipur. Hometown:Surat, Gujarat
